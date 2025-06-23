@@ -40,7 +40,7 @@ I'm currently pursuing my Bachelor's degree in Computer Science and have a stron
 
 ## 🧑‍🏫 Teaching & Services
 
-- **Founder of Sri Tuition Center** – Offering spoken English, special care for students, weekly tests, and more.
+- **Founder of Sri Tuition Center** – special care for students, weekly tests, and more.
 - Creating spelling, reading, and subject improvement programs for school students.
 
 ---
